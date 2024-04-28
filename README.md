@@ -3,8 +3,10 @@
 
 ![BfKu](https://github.com/itailiors/itailiors/assets/78041027/e8efa3a8-a7ac-4015-a5ff-f04e3a53777b)
 
-Llama  - 
-![image](https://github.com/itailiors/itailiors/assets/78041027/abeb765b-c070-4ca5-a022-d2e82f25000e)
+Llama  -
+
+![image](https://github.com/itailiors/itailiors/assets/78041027/2f8e627c-6872-45f4-8dcb-647ae31cd725)
+
 
 
 
